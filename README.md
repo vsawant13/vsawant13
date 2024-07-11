@@ -2,7 +2,7 @@
 - 👀 I’m interested in working on various projects and uncovering insights and pattern.
 - 🌱 I’m currently learning Python.
 - 💞️ I’m looking to collaborate on .....
-- 📫 How to reach me .....
+- 📫 You can reach me through my email address:- vaishnavisawant1306@gmail.com or contact me through my instagram handle.
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I am passionate about music and play the piano. The healing power of music is mirrored in my experience with coding, data, and projects.
 
